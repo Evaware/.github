@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+Evaware is an hobby and research organization in the name of technological advancement, building something cool and just outright being cute :3. 😼😼😼
+
 <!--
 
 **Here are some ideas to get you started:**
